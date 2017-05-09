@@ -1,2 +1,5 @@
 # Testni-projekt
-moje sanje pretipkane v kodo
+Moje sanje pretipkane v kodo
+VSAK DAN NAM BOLJ GRE
+
+
